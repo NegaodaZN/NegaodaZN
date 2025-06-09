@@ -4,4 +4,4 @@
 - 📫 Meu e-mail bruno.carvalho21@escola.pr.gov.br
 - ⚡ Obrigado a todos!
 
-- ![.] (https://tenor.com/pt-BR/view/mario-mario-bros-mario-negao-gif-14832744)
+- ![.](https://tenor.com/pt-BR/view/mario-mario-bros-mario-negao-gif-14832744)
